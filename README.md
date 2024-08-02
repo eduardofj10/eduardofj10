@@ -5,5 +5,5 @@
 ![](https://images.uncyc.org/pt/c/c7/Distraction_Dance.gif)
 𝗔𝗤𝗨𝗜 𝗘́ 𝗢 𝗝𝗔̃𝗢𝗢𝗢𝗢𝗢
 ![](https://images.uncyc.org/pt/c/c7/Distraction_Dance.gif)
-4
+☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢☢
 ![](https://images.uncyc.org/pt/c/c7/Distraction_Dance.gif)
